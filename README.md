@@ -1,2 +1,0 @@
-# dGonzales
-BestApps
